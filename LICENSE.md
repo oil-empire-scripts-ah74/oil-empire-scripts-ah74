@@ -1,4 +1,4 @@
-
+top Scripts for oil empire - spd and tele is your go-to resource for oil empire domination. Featuring spd and tele, our scripts are engineered to maximize your efficiency and enjoyment. Say goodbye to tedious grinding and hello to effortless victories.
 
 
 ---
